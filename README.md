@@ -66,5 +66,5 @@ Distributed under the MIT License. See `LICENSE` for more information.
 
 Sharath kumar  - [sharath88528@gmail.com](mailto:sharath88528@gmail.com)
 
-Connect with me on LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/sharath0524)
+Connect with me on LinkedIn: [Sharath05242](https://www.linkedin.com/in/sharath0524)
 
